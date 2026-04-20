@@ -18,7 +18,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا نور روحي في سكون الليل
+> أنتِ القدر وأنتِ الدليل
+> شوقي إليك يفوق الخيال
+> حبنا باقٍ وعمره طويل
 > ...
 
 📄 **[View Full Lyrics →](./lyrics.txt)**
